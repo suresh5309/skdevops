@@ -10,3 +10,8 @@ egjegjekl
 jglkjrgjw
 jglkwjegjwgjk
 2
+unnava poayava
+unnanu poayanu
+avunba
+kadu 
+ledu
